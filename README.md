@@ -1,0 +1,1 @@
+# soft_kompjuting_p3
